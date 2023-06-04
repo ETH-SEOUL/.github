@@ -1,4 +1,4 @@
-# (♾,📊) 4Ever.Data – The DataDAO that unleashes the power of #fairAI.
+# (♾,📊) dfgdf.Data – The DataDAO that unleashes the power of #fairAI.
 
 ## **Intro to 4Ever.Data💡**
 
